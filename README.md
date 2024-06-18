@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on: D-build2022<br>👯 I’m Interested in jobs related to computer programming or IoT.<br>🌱 Pronouns: He/Him<br>💬 How to contact me: s.surinlert@gmail.com<br>⚡ Fun fact: I like Sci-fi fiction<br><br>  https://sites.google.com/view/ssurinlertgone/home
+🔭 I’m currently working on: D-build2022<br>👯 I’m Interested in jobs related to computer programming or IoT.<br>🌱 Pronouns: He/Him<br>💬 How to contact me: s.surinlert@gmail.com<br>⚡ Fun fact: I like Sci-fi fiction<br><br>
 
 
 ## 🌐 Socials:
